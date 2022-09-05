@@ -1,1 +1,1 @@
-This is the official website for The City Service Station.
+This is the official website of City Service Station.
